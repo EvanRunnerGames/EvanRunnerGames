@@ -2,6 +2,6 @@
 - 👀 I’m interested in Web development and Python programming
 - 🌱 I'm mainly just working and studying for school
 - 💞️ I'm a solo dev, only times I work with others is when I work with my friends on a project
-- 📫 evanrunnercontact@gmail.com
+- 📫 https://mail.google.com/mail/u/0/?fs=1&to=evanrunnercontact@gmail.com&tf=cm
 - 😄 Jerk/Off
 - ⚡ I'm not special im just a hobbiest programmer and so are you!
