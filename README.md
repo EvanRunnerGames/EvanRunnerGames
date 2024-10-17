@@ -4,4 +4,4 @@
 - 💞️ I'm a solo dev, only times I work with others is when I work with my friends on a project
 - 📫 https://mail.google.com/mail/u/0/?fs=1&to=evanrunnercontact@gmail.com&tf=cm
 - 😄 Evan/Runner
-- ⚡ I'm not special im just a hobbiest programmer and so are you!
+- ⚡ PLEXYGAMES DISCORD - https://discord.gg/vZJaBXxmdQ
